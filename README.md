@@ -1,0 +1,1 @@
+# Sistema-de-Automa-o-por-Meio-de-Reconhecimento-de-Voz
